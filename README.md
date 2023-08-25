@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @IceBergKenz
+- 👀 I’m interested in NFTs/Crypto/Mining.
+- 🌱 I’m currently learning how to make profit off cryto/nfts.
+- 💞️ I’m looking to collaborate with funny intelligent honest classy attractive women.
+- 📫 How to reach me iicebergkk@yahoo.com
+- 📱 +1928-299-1234
